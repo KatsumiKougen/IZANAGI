@@ -27,4 +27,4 @@ Stay safe - and good luck. Danke fürs Lesen.
 
 *- Katsumi Kogen (光阮 勝己), 2021*
 
-(\*\) In spite of my Japanese name, I am not a Japanese. I am a Vietnamese, and "Katsumi Kogen" is just my nickname. The name "Katsumi" drew inspiration from [Katsumi Minato](https://ultra.fandom.com/wiki/Katsumi_Minato) - the older brother of [Isami Minato](https://ultra.fandom.com/wiki/Isami_Minato) and [Asahi Minato](https://ultra.fandom.com/wiki/Asahi_Minato). The surname, "Kogen" (光阮) is my real Vietnamese name - 光 is my real name, and 阮 is my family name. And now you know who I am.
+(\*\) In spite of my Japanese name, I am not a Japanese. I am a Vietnamese, and "Katsumi Kogen" is just my nickname. The name "Katsumi" drew inspiration from [Katsumi Minato](https://ultra.fandom.com/wiki/Katsumi_Minato) - the older brother of [Isami Minato](https://ultra.fandom.com/wiki/Isami_Minato) and [Asahi Minato](https://ultra.fandom.com/wiki/Asahi_Minato) - albeit with different kanji. The surname, "Kogen" (光阮) is my real Vietnamese name - 光 is my real name, and 阮 is my family name. And now you know who I am.
